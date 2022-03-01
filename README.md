@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @LuvNailo
+- 👀 I’m interested in games mostly
+- 🌱 I’m currently learning simple modding ig
+- 📫 How to reach me @shava_nailo on instagram
